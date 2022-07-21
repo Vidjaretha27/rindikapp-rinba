@@ -1,0 +1,1 @@
+# rindikapp-rinba
